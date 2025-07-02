@@ -1,2 +1,2 @@
-# chunsung
-Just a normal K-high school student.
+# 천성
+고3입니다
